@@ -13,9 +13,9 @@ Check out some of my links below!
   
 > 🟢 My Bio: https://axoyl.bio.link
 	
-> 🟩 Portfolio: https://axoyl.github.io
+> 🟩 My Portfolio: https://axoyl.github.io
 	
-> 🟢 My Youtube: https://www.youtube.com/@Axoyl
+> 🟢 Youtube: https://www.youtube.com/@Axoyl
 	
-> 🟩 Discord: https://discord.gg/cQgjrusqD9
+> 🟩 Atlic Network: https://discord.gg/cQgjrusqD9
 </div>
